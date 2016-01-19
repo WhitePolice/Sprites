@@ -1,0 +1,1 @@
+## Skyblade Item Mall Sprites
